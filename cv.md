@@ -1,6 +1,6 @@
-1. My name is Evgeniy Gidzinskiy
+1. My name is **Evgeniy Gidzinskiy**
 
-2. You can contact me at phone: +7-913-040-4610, and email: 50-G-Unit@mail.ru,
+2. You can contact me at phone: **+7-913-040-46-10**, and email: **50-G-Unit@mail.ru**,
 also you can write me in a telegram, WhatsApp, Viber.
 
 3. At the moment, it is important for me to change the direction of my work in IT.
